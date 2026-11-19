@@ -1,1 +1,0 @@
-# Medipal-Project-Demo-Webpage
